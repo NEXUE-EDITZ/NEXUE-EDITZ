@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋DON'T JUST BE A VIEWER — BECOME A LEGEND OF EXTENDED! ⚡
 
 <!--
 **NEXUE-EDITZ/NEXUE-EDITZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+⚡ DON'T JUST BE A VIEWER — BECOME A LEGEND OF NEXUE&EDITZ! ⚡
+
+🔥 One click can make you part of something BIG!
+👑 Hit that SUBSCRIBE button and unlock a world of epic edits, insane transitions, and unforgettable moments.
+
+💚 Don't stay in the shadows — join the NEXUE squad, turn on notifications, and be there before the next legendary edit drops!
+
+🚀 WE DON'T FOLLOW THE TREND. WE CREATE OUR OWN STYLE.
+
+SUBSCRIBE TO NEXUE — YOUR NEXT FAVOURITE EDIT IS JUST ONE CLICK AWAY! 🔥
